@@ -8,9 +8,9 @@ Because of its real-world value, Robux is frequently targeted by scams, phishing
 
 A practical guide explaining legitimate ways to earn Robux on Roblox while protecting your account from scams, phishing, and unauthorized access.
 
-👉 ✅Access your reward here🎁 ➤ https://telegra.ph/Your-Gift-06-09-2
+[👉 ✅Access your reward here🎁 ➤](https://telegra.ph/Your-Gift-06-09-2)
 
-👉 ✅Access your reward here🎁 ➤ https://telegra.ph/Your-Gift-06-09-2
+[👉 ✅Access your reward here🎁 ➤](https://telegra.ph/Your-Gift-06-09-2)
 
 🧱 Core Principle (Important)
 
